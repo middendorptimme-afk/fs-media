@@ -5,3 +5,4 @@
 - 2026-11-12: Kees stapt over 1 (93 dagen), wachten op je boekhouder, bij ons antwoord op dezelfde dag (Timme)
 - 2026-11-13: Kees stapt over 2 (1 uur), overstappen kost je ongeveer een uur, de rest regelen wij (Timme)
 - 2026-11-14: Kees stapt over 3 (5 jaar), aangifte 2025 nog 5 jaar aan te passen, wij kijken mee (Timme)
+- 2026-11-13: werkruimte thuis (Kees en de garage), alleen aftrekbaar bij een aparte ruimte met eigen ingang, eigen toilet en het grootste deel van je inkomen (Timme)
