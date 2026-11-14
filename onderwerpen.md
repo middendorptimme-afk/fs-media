@@ -9,3 +9,4 @@
 - 2026-11-14: factuur 31 december of 1 januari (Kees en de jaarwisseling), voor de btw telt je factuurdatum, voor je winst telt wanneer het werk af is (Luuk)
 - 2026-11-15: AOV (Kees en de bakfiets), 8 op de 10 zzp'ers is niet verzekerd, de premie is aftrekbaar, check je aangifte (Timme)
 - 2026-11-15: Youngtimerregeling verandert (amendement Stoffer/Grinwis, 17-18-19-20 jaar, 45% bijtelling 2028-2030)
+- 2026-11-15: startersaftrek wordt een tientje (formaat virale BV-bank), € 10 omdat afschaffen per 2027 niet uitvoerbaar was, geen overgangsrecht, 2026 telt nog helemaal mee (Timme)
