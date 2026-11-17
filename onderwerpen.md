@@ -11,3 +11,4 @@
 - 2026-11-15: Youngtimerregeling verandert (amendement Stoffer/Grinwis, 17-18-19-20 jaar, 45% bijtelling 2028-2030)
 - 2026-11-15: startersaftrek wordt een tientje (formaat virale BV-bank), € 10 omdat afschaffen per 2027 niet uitvoerbaar was, geen overgangsrecht, 2026 telt nog helemaal mee (Timme)
 - 2026-11-18: wat regel je als dertigjarige zzp'er (Kees is dertig, formaat virale BV-bank), loondienst 3 van 3 tegen Kees 0 van 3: AOV of buffer, jaarruimte € 9.248 bij € 50.000 winst, cijfers bijhouden (Timme)
+- 2026-11-17: story's overstappen (Kees wacht 34 dagen op zijn boekhouder, daarna: stuur ons het woord overstap), alleen Instagram- en Facebook-story (Timme)
